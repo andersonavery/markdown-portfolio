@@ -1,1 +1,1 @@
-https://www.linkedin.com/in/avery-w-anderson/
+[text](https://www.linkedin.com/in/avery-w-anderson/)
