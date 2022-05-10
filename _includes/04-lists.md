@@ -1,1 +1,2 @@
-Replace this with a list of your favorite things.
+- [] Going fishing this weekend 
+- [] Going to catch about 4 redfish 
